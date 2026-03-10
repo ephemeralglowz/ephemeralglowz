@@ -3,12 +3,21 @@
 
 °‧ 𓆝 𓆟 𓆞 ·｡•˚ Ephemeral Glowz ˚•°‧ 𓆝 𓆟 𓆞 ·｡
 
+
 𓇼 ⋆｡˚ 𓆝𝐵𝒶𝓈𝒾𝒸𝓈𓆞⋆｡˚ 𓇼
+
+
 ଳ | Nicknames: Glowz/Ephemeral
+
+
 ଳ | Pronouns: It/Its
+
+
 ଳ | Gender: Yes
 
+
 ⋆ ꩜ ⋆｡°✩  𓇼 𓆛 𓇼 ⋆｡°✩ ꩜ ⋆ 
+
 
 <sub>The following words under are clickable</sub>.
 <details>
