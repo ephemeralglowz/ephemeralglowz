@@ -1,7 +1,18 @@
 # ✩░▒▓▆▅▃▂▁𝐄𝐩𝐡𝐞𝐦𝐞𝐫𝐚𝐥 𝐆𝐥𝐨𝐰𝐳▁▂▃▅▆▓▒░✩
 
+
+°‧ 𓆝 𓆟 𓆞 ·｡•˚ Ephemeral Glowz ˚•°‧ 𓆝 𓆟 𓆞 ·｡
+
+𓇼 ⋆｡˚ 𓆝𝐵𝒶𝓈𝒾𝒸𝓈𓆞⋆｡˚ 𓇼
+ଳ | Nicknames: Glowz/Ephemeral
+ଳ | Pronouns: It/Its
+ଳ | Gender: Yes
+
+⋆ ꩜ ⋆｡°✩  𓇼 𓆛 𓇼 ⋆｡°✩ ꩜ ⋆ 
+
+######Click to see more
 <details>
-<summary>Click here to reveal more information</summary>
+<summary>DNI</summary>
 
 ### This is the hidden paragraph
 Here is the detailed information you wanted to show.
