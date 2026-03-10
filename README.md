@@ -10,7 +10,7 @@
 
 ⋆ ꩜ ⋆｡°✩  𓇼 𓆛 𓇼 ⋆｡°✩ ꩜ ⋆ 
 
-######Click to see more
+<sub>The following words under are clickable</sub>.
 <details>
 <summary>DNI</summary>
 
