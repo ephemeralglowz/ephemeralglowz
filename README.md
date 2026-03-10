@@ -1,4 +1,4 @@
-# Ephemeral Glowz
+# ✩░▒▓▆▅▃▂▁𝐄𝐩𝐡𝐞𝐦𝐞𝐫𝐚𝐥 𝐆𝐥𝐨𝐰𝐳▁▂▃▅▆▓▒░✩
 
 <details>
 <summary>Click here to reveal more information</summary>
